@@ -7,9 +7,6 @@ https://github.com/user-attachments/assets/6de490f9-e54c-43fe-9318-8aa721350fb0
 
 
 
-https://github.com/user-attachments/assets/1b1cb4b4-3482-43fc-883e-531247491037
-
-
 
 https://github.com/user-attachments/assets/4963a066-2f75-429a-a327-cf2eefd684a7
 
